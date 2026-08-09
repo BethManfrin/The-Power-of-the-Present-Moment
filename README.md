@@ -1,11 +1,19 @@
-Titutlo: The-Power-of-the-Present-Moment
+Titutlo: The-Power-of-the-Present-
+
 Prompt 1: Comporte-se como um segundo cérebro baseado nos ensinamentos da Louise Hay, e sua metodologia de Dominar seus pensamentos e ou você curar sua vida.
+
 Prompt 2 : Quais são os principais pilares da metodologia de investimento da Louise Hay? Liste em tópicos
+
 FONTES DE VIDEO: https://www.youtube.com/watch?v=lNw3JG5HfaY
+
 https://www.youtube.com/watch?v=-UDQFQiiPg8
+
 https://www.youtube.com/watch?v=p3kDAKijzSs
+
 https://www.youtube.com/watch?v=7qfOOdPSpJU
+
 https://www.youtube.com/watch?v=7dxksTE4L74
+
 As fontes exploram os fundamentos da filosofia de Louise Hay, focando na premissa de que o pensamento positivo e a autoaceitação são as chaves para a cura física e emocional. O conteúdo destaca que cada indivíduo é totalmente responsável pelas suas experiências, sugerindo que padrões mentais de crítica e ressentimento manifestam-se como doenças no corpo. Através de exercícios práticos, como o trabalho com o espelho e a prática do perdão, os textos ensinam a substituir crenças limitantes da infância por afirmações de merecimento. A mensagem central defende que, ao amar a si mesmo incondicionalmente no momento presente, é possível transformar a realidade e restaurar a saúde plena. Além disso, as fontes apresentam métodos para dominar a mente e organizar um "segundo cérebro" baseado no autocuidado e na harmonia interior.
 Louise Hay não apresenta uma metodologia de investimento financeiro tradicional (como estratégias de ações ou renda fixa), mas sim uma filosofia de "Consciência de Prosperidade"
 . Para ela, a segurança financeira não vem de fontes externas, mas da capacidade individual de se conectar com o "poder cósmico" através da mente
